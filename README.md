@@ -9,4 +9,3 @@ Engineering &amp; Music Portfolios
 ###### - dhnlyoiy@gmail.com
 ###### - dhensle63@charlottesvilleschools.org
 ###### - (510)387-1662
- <img src="Picture_1.jpg" width="150">
