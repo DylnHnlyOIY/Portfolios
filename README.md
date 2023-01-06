@@ -1,5 +1,5 @@
 # - [Engineering Portfolio](https://github.com/DylnHnlyOIY/Engineering-Portfolio)
-# - [Music Portfolio](https://github.com/DylnHnlyOIY/Music-Portfolio)
+# - [Music Portfolio](https://youtube.com/playlist?list=PLhRAmMgj-8oNcfJX6kKFeS_EpfUJfv32t)
 
 ## Contact Info
  
