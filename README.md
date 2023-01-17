@@ -1,6 +1,6 @@
 # - [Engineering Portfolio](https://github.com/DylnHnlyOIY/Engineering-Portfolio)
 ## - [Music Portfolio*](https://youtube.com/playlist?list=PLhRAmMgj-8oNcfJX6kKFeS_EpfUJfv32t) 
-*Not Avaible until Feb 1^st
+* Music Portfolio not avaible until Feb 1st
 
 ## Contact Info
  
